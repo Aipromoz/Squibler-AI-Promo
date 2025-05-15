@@ -4,7 +4,7 @@
 Are you looking for the best **Squibler AI promo code 2025** to save big on your subscription? You're in luck! For a limited time, you can get an **exclusive 55% discount** on Squibler AI, the powerful AI-powered writing tool designed for authors, screenwriters, and content creators. 
 
 
-[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://squibler.io/?via=abdul)
+[![Discount button](https://github.com/user-attachments/assets/96dd8486-d077-4e5b-8cd3-ae58e6fa6a02)](https://squibler.io/?via=abdul)
 ---  
 
 **[Click Here to Redeem Your 55% Off Now!](https://squibler.io/?via=abdul)**
